@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @darkni442
+- 👀 I’m interested in roblox exploits.
+- 🌱 I’m currently learning in middle school.
+- 💞️ I’m looking to collaborate on making exploits.
+- 📫 How to reach me ...
